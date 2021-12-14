@@ -1,0 +1,9 @@
+- Adicione o leite condensado e a margarina em uma tigela;
+- Misture-os;
+- Adicione o cocô ralado e misture com o leite condensado e a margarina;
+- Adicione a maizena aos poucos, misturando primeiramente com uma colher depois comece a misturar com a mão (se for necessário adicione mais maizena);
+- Quando não estiver mais grudando na mão, enrole a massa em bolinhas;
+- Coloque os biscoitos em uma forma untada;
+- Se você quiser, você pode "molhar" um garfo na maizena e precionar os biscoitos cuidadosamente;
+- Bote os biscoitos no forno, por volta de 10 à 15 minutos ou até dourar;
+- Retire do forno. espere esfriar e se delicie.
